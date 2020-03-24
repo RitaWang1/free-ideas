@@ -1,2 +1,2 @@
 # free-ideas
-just some ideas, free your mind
+just some ideas
